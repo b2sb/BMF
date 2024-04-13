@@ -1,3 +1,2 @@
 # BMF
-+50 users en - de 1 semaine
-By b2, ne vous matrixez pas vous y gagnerez rien.
+BMF BY B2 +50 users en - de 1 semaine, ne vous matrixez pas vous y gagnerez rien.
